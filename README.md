@@ -1,2 +1,7 @@
 # ECONOMETRIA-PROYECTO
-Say your prayers, little one, don't forget, my son to include everyone
+Welcome to the jungle, we got fun and games
+We got everything you want, honey, we know the names
+We are the people that can find whatever you may need
+If you got the money, honey, we got your disease
+
+
